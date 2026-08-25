@@ -1,33 +1,31 @@
-## info all abt me!!
+## info abt me 🪽
 
-<img width="847" height="847" alt="IMG_0917" src="https://github.com/user-attachments/assets/7ca9546f-4889-47da-8938-a48fdd8290fd" />
-
-
+<img width="1080" height="1080" alt="20E18321-8495-49E7-B5CD-E8ED622B2BE5" src="https://github.com/user-attachments/assets/682793cf-f770-4161-8538-e3e9301af35a" />
 
 
 
 
 
- hello my name is juno! nicknames are always welcomed! i am a  14 years old artist who
- aspires to be an animator!! i am almost always avalible to int! make sure to follow me on 
- my tiktok: itsjuno0! If you see me on pt im mostly afk or hanging around friends! c+h are encouraged esp if you wanna int with me!! dont be shy! 
-<img width="1200" height="1200" alt="IMG_0915" src="https://github.com/user-attachments/assets/ad4e86b6-1219-41c2-bff9-2f8b769043ca" />
+
+
+
+ hello my name is juno 🪽 nicknames are always welcomed.. i am a  14 years old artist who
+ aspires to be an animator 🪽 i am almost always avalible to int.. make sure to follow me on 
+ my tiktok: itsjuno0! If you see me on pt im mostly afk or hanging around friends.. c+h are encouraged esp if you wanna int with me.. dont be shy.. 🪽🪽
+<img width="1080" height="1080" alt="3B2438CA-AEAB-4ED3-89F0-17419D9B9D35" src="https://github.com/user-attachments/assets/b5766417-43ee-47c6-b1f8-dc271a5b585a" />
+
 
  
 
-- int list: if you wanna make new friends !!
-- you like demon slayer, tbhk, death note, atla and more!
-- if you wanna match skins!
-just int in general !! w2i if im afk!
-<img width="540" height="400" alt="54B0DD13-863A-4976-82DB-3D1BC3B13104" src="https://github.com/user-attachments/assets/87169c31-898f-4d30-9118-bf3176f8ec4b" />
+- I really love columbina and dottore from genshin.. 🪽🌙
+<img width="480" height="480" alt="78F56FE6-25C9-4E7B-891B-0EC77FFA26F0" src="https://github.com/user-attachments/assets/9209f83b-ec9b-4d43-991a-c4f7446d4c14" />
 
 
-dni ist!: if you are rude for no reason!
-racist ppl!
-homophobic ppl!
-abelist !
-toxic ppl!
-<img width="269" height="250" alt="596E3BED-D261-4FE7-BAD5-20034E032099" src="https://github.com/user-attachments/assets/c9c692a3-0f79-421c-8443-9df5771d82b4" />
+
+int any time.. just w2i.. bye bye.. 🪽🌙
+<img width="1080" height="1080" alt="B61E2E37-5DAE-47DE-A2AB-1679D4C3826D" src="https://github.com/user-attachments/assets/f48bba9f-ffa8-4bfc-aa35-1077d823d847" />
+
+
 
 
 
